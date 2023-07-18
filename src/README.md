@@ -10,5 +10,4 @@ In addition, the book will provide tips for creating a culture of self-motivatio
 
 By reading "The Art of Self-Motivation", individuals can develop the skills and mindset needed to stay motivated and focused, even in the face of challenges or obstacles. Through a commitment to personal growth and a willingness to embrace new opportunities and challenges, anyone can achieve success in their personal and professional lives.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
