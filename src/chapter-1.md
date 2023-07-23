@@ -21,5 +21,3 @@ Benefits of Staying Motivated and Focused
 Staying motivated and focused at work has numerous benefits for your career and personal life. It can help increase productivity, improve job satisfaction, and lead to career advancement opportunities. Additionally, being motivated and focused can have positive effects on your mental health and overall well-being.
 
 By developing a strong sense of self-motivation, you can overcome obstacles, take on new challenges, and achieve your professional goals. This book will provide you with practical strategies and techniques to help you cultivate self-motivation and stay focused at work.
-
-In the following chapters, we'll explore common barriers to self-motivation and provide tips and strategies for overcoming them. We'll also delve into specific techniques for staying focused, managing distractions, and setting achievable goals. By the end of this book, you'll have the tools and knowledge you need to stay motivated and achieve your career objectives.
