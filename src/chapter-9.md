@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Self-Motivation
-====================================================
 
 Technology has become an integral part of our daily lives, and it can also be a valuable tool for self-motivation. By leveraging technology, individuals can access resources and tools that can help them stay motivated and focused at work. In this chapter, we will discuss strategies for leveraging technology for self-motivation.
 

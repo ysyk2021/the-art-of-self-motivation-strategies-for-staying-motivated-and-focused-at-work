@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Self-Motivation Skills
-=================================================
 
 Maximizing your self-motivation skills is key to achieving success in the workplace. By identifying opportunities for staying motivated and focused, finding ways to stay motivated and focused, prioritizing tasks and time management, and fostering resilience, individuals can enhance their self-motivation skills. In this chapter, we will discuss strategies for maximizing your self-motivation skills.
 

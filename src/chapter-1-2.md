@@ -1,5 +1,3 @@
-Common Misconceptions About Motivation
-===============================================================
 
 Motivation is essential for achieving success in the workplace, but there are many misconceptions about what motivation is and how it works. In this chapter, we will discuss some common misconceptions about motivation.
 

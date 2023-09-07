@@ -1,5 +1,3 @@
-Chapter 3: Developing a Self-Motivation Mindset
-===============================================
 
 Developing a self-motivation mindset is essential for achieving success in the workplace. In this chapter, we will discuss strategies for cultivating a self-motivation mindset, including techniques for developing a positive mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through self-motivation.
 

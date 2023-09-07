@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Self-Motivation
-=================================================
 
 Identifying Common Sources of Resistance to Self-Motivation
 -----------------------------------------------------------

@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Self-Motivation
-============================================================================================================
 
 Understanding the principles of effective self-motivation is essential for developing successful strategies for staying motivated and focused at work. In this chapter, we will explore the principles of effective self-motivation.
 

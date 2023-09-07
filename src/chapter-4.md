@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Self-Motivation
-=====================================================
 
 Self-motivation is a powerful force that can help individuals achieve success in the workplace. In this chapter, we will discuss the benefits of focusing on self-motivation, recognizing how self-motivation contributes to success, analyzing the impact of self-motivation on individuals and organizations, and addressing limiting beliefs.
 

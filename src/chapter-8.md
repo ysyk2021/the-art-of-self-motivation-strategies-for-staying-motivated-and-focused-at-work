@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Self-Motivation
-================================================
 
 Creating a culture of self-motivation is essential for maintaining a positive and productive work environment. In this chapter, we will explore strategies for encouraging proactive self-motivation across the organization, providing training and professional development opportunities, fostering knowledge sharing and mentorship, and celebrating self-motivation-based achievements.
 

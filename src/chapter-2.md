@@ -1,5 +1,3 @@
-Chapter 2: Defining Self-Motivation
-===================================
 
 Self-motivation is a critical component of achieving success in the workplace. In this chapter, we will define self-motivation and explore its importance in the workplace. We will also discuss the science behind motivation and provide strategies for assessing one's personal approach to motivation.
 

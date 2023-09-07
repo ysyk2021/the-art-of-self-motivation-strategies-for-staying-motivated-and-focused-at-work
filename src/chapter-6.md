@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Self-Motivation Skills
-=================================================
 
 Developing self-motivation skills is critical for achieving success in the workplace. In this chapter, we will discuss strategies for developing your self-motivation skills, including understanding the principles of effective self-motivation, developing strategies for staying motivated and focused, utilizing feedback and coaching, and fostering continuous learning and improvement.
 
