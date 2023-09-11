@@ -1,5 +1,4 @@
-Chapter: Analyzing the Impact of Self-Motivation on Individuals and Organizations
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound impact that self-motivation can have on both individuals and organizations. Understanding this impact is crucial for harnessing the power of self-motivation to drive personal success and organizational growth.
 

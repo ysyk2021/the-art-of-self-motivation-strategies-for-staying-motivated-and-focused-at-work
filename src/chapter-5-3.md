@@ -1,5 +1,4 @@
-Chapter: Prioritizing Tasks and Time Management
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of prioritizing tasks and effective time management for staying motivated and focused at work. Developing strategies to prioritize tasks and manage time efficiently is crucial for maximizing productivity and maintaining motivation.
 

@@ -1,5 +1,4 @@
-Chapter: Adapting to Changes in the Workplace
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for adapting to changes in the workplace. In today's dynamic and fast-paced work environments, change is inevitable. To stay motivated and focused, it is crucial to develop the ability to adapt and embrace change positively. By implementing effective strategies for navigating workplace changes, you can maintain your motivation, enhance productivity, and thrive in any professional setting.
 

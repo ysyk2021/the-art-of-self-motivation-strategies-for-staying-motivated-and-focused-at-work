@@ -1,5 +1,4 @@
-Chapter: Celebrating Self-Motivation-Based Achievements
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating self-motivation-based achievements in the workplace. Recognizing and celebrating your accomplishments is a powerful way to maintain motivation, boost morale, and foster a sense of fulfillment. By embracing celebratory practices, you can reinforce your self-motivation efforts and create a positive and rewarding work environment.
 

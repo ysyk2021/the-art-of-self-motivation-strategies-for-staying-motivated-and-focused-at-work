@@ -1,5 +1,4 @@
-Chapter: Identifying Common Sources of Resistance to Self-Motivation
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common sources of resistance to self-motivation. Understanding these sources can help us identify and address barriers that hinder our ability to stay motivated and focused at work. By recognizing and overcoming these challenges, we can enhance our self-motivation and achieve greater success.
 

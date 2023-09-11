@@ -1,5 +1,4 @@
-Chapter: Fostering Resilience
-=============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for fostering resilience to enhance self-motivation and focus at work. Resilience is the ability to bounce back from setbacks, adapt to challenges, and maintain a positive mindset. By implementing these strategies, you can cultivate resilience, enabling you to overcome obstacles and stay motivated and focused even in the face of adversity.
 

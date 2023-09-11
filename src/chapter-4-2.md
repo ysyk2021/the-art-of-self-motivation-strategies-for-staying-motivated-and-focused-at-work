@@ -1,5 +1,4 @@
-Chapter: Recognizing How Self-Motivation Contributes to Success
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the ways in which self-motivation plays a vital role in achieving success. Understanding and recognizing the impact of self-motivation can empower individuals to harness its power and unlock their full potential.
 

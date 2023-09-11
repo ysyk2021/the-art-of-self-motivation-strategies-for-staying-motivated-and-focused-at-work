@@ -1,5 +1,4 @@
-Chapter: Assessing Your Personal Approach to Motivation
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of assessing your personal approach to motivation. Understanding how you currently approach motivation can help you identify areas for improvement and develop strategies to enhance your self-motivation.
 

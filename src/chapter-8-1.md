@@ -1,5 +1,4 @@
-Chapter: Encouraging Proactive Self-Motivation Across the Organization
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies to encourage proactive self-motivation across the organization. When employees are empowered to take ownership of their motivation, it can lead to increased productivity, better performance, and a positive work culture. By fostering an environment that supports and encourages proactive self-motivation, organizations can unleash the full potential of their workforce.
 

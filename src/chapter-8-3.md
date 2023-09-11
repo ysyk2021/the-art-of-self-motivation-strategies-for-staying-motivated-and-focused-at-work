@@ -1,5 +1,4 @@
-Chapter: Fostering Knowledge Sharing and Mentorship
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering knowledge sharing and mentorship in the workplace for enhancing self-motivation. Creating a culture of knowledge sharing and engaging in mentorship relationships can significantly contribute to personal and professional growth. By actively participating in these practices, you can expand your knowledge, gain valuable insights, and maintain a high level of motivation and focus at work.
 

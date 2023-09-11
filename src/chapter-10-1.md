@@ -1,5 +1,4 @@
-Chapter: Tracking Progress and Measuring Results
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and measuring results as essential strategies for staying motivated and focused at work. By establishing effective tracking systems and metrics, you can gain valuable insights into your progress, make data-driven decisions, and maintain a sense of accomplishment. Tracking progress and measuring results provide the foundation for continuous improvement and goal attainment.
 

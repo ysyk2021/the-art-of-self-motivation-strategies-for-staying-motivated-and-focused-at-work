@@ -1,5 +1,4 @@
-Chapter: Avoiding Information Overload
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies to avoid information overload and maintain motivation and focus at work. In today's digital age, we have access to an abundance of information, which can often overwhelm our minds and hinder productivity. By implementing techniques to manage and filter information effectively, you can prevent information overload, stay motivated, and remain focused on your goals.
 

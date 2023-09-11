@@ -1,5 +1,4 @@
-Chapter: Setting Realistic Goals and Objectives
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for setting realistic goals and objectives that can enhance our self-motivation and focus at work. Setting achievable goals is essential for maintaining enthusiasm and momentum on our professional journey. By implementing these strategies, we can establish clear and attainable targets that fuel our motivation and keep us focused on success.
 

@@ -1,5 +1,4 @@
-Chapter: Developing Empathy and Compassion through Self-Motivation
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the connection between self-motivation and the development of empathy and compassion. We will delve into how fostering these qualities can enhance our overall motivation, focus, and success in the workplace. By cultivating empathy and compassion within ourselves, we create a positive and supportive environment that fuels our self-motivation.
 

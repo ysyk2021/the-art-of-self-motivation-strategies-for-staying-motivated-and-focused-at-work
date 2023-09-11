@@ -1,5 +1,4 @@
-Chapter: Overview of Self-Motivation
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of self-motivation and its significance in staying motivated and focused at work. Understanding the concept of self-motivation is essential for harnessing its power to drive personal success and productivity.
 
